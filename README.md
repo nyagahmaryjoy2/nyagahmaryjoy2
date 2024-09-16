@@ -1,6 +1,6 @@
-- 👋 Hi, I’m nyagahmaryjoy
+- 👋 Hi, I’m Maryjoy Njeri Nyagah
 - 👀 I’m interested in being a web developer
-- 🌱 I’m currently learning Bachelor in IT
+- 🌱 Currently am done with my degree couse in IT
 - 💞️ I’m looking to collaborate on High tech companies 
 - 📫 How to reach me on nyagahmaryjoy2@gmail.com
 - ⚡ Fun fact: say hi we might know each other
